@@ -1,2 +1,0 @@
-# sophieandjanelle
-Sophie And Janelle
